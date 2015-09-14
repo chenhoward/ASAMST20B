@@ -36,4 +36,19 @@
 - *music kontemporer* is a contemporary music that doesn't depend upon Western modernism.
 - The choice to turn against tradition is a privilege for those whose traditions are not at risk.
 
-## Placing Bali in the Global Aesthetic Network
+# Placing Bali in the Global Aesthetic Network
+- *Festival Musik Masa Kini*  means the Festival of Comtemporary Music.
+  - Marks collaboration between Balinese and Foreign composers.
+- Foreign observers are blind from recognizing the innovation of Balinese contemporary music because
+of the romanticism of Balinese culture.
+
+## Anthropological Romances
+- "An inexaustable supply of culture"
+  - Historic romanticizations oscillated between natural overabundance to disorder.
+- Research is more concerned with the *tradisi* rather than the *kontemporer*.
+
+## Musical Modernism in Indonesia
+- Western music did not spread too well in the Dutch East Indies, most of it stayed with upperclass
+Dutch.
+
+LEFT on Page 20

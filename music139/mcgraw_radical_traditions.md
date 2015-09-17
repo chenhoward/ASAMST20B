@@ -22,7 +22,7 @@
 # Introduction
 - How are culture and change thought in Bali?
   - Assertion: *music kontemporer* emerged as a form to express new ideas that were not able to be
-    expressed by older forms.  It works to the reconsile the artists and audiences paradox between
+    expressed by older forms.  It works to the reconcile the artists and audiences paradox between
     contemporary Balinese culture as lived vs represented.
 - Foreign interaction catalyzes change within Balinese culture.
   - Contemporary Balinese music is a product of global cold war cultural interaction.

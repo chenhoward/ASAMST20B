@@ -1,0 +1,22 @@
+# An Ecological History of Central Asian Nomadism
+- CA is in the world's largest area of semi-arid steppe and true desert.
+- Agriculture is only possible in limited spots.
+- Most people were pastoral nomads.
+  - Some nomads considered sedentary life similar to slavery.
+- Divided into tribes.
+  - Tribes disputed over grazing rights in an area.
+- The low amounts of resources and the constant fighting kept the population size very low.
+  - Chinghis's tribe in the twelfth century had almost million people.
+- Goats are more destructive than sheep.
+- Yaks are used for higher elevation.
+- Domesticated horses as well.
+  - Useful for herding and driving flocks of sheep.
+  - Pulls weights.
+  - Allowed for mounted archery to greatly increase war power.
+- Camels were used for carrying and travel, not herding.
+- The fuel they used was dried dung.
+- Nomadic clothing consisted on pelts with wool on them.
+- Diet consisted of meat and milk products.
+- Great warriors on horses and bows.
+  - Won many battles with great mobility.
+    - Only two noticeable losses were against the Mamluke and Egyptians

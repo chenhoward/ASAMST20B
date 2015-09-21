@@ -91,3 +91,55 @@ countries.
 - CA receives backing from Russia more than any other region in the world.
 
 ### Our vs Their rhetoric in Russian popular perception of Central Asians
+- Soviets did imagine a multiethnic states, and did share a common identity.
+- Nationalistic feelings did come through after the USSR fell.
+- Russians over time stopped caring about events in CA.
+- Most Russians get their perception of CA based on interactions with CA migrant workers.  Central
+Asians are often victims of hate crime.
+- Different views amount different classes
+  - High class sees irritation
+  - Middle class feels hostility
+  - Lower class feels fear
+
+## Influence of the US and Russian interests on their perception of Central Asia
+- US tries to include CA, Russia tries to include them rather than alienate.
+- US's inclusion of Afghanistan  reflects security and economic interests.
+
+### The US interests in Central Asia
+- US commitment after fall of USSR was characterized by lack of awareness and commitment.
+- Lacked vision on what to do for the region.
+- After 9/11 US had huge interests in CA.
+  - War on Terrorism
+  - Use of Energy Resources.
+    - Strobe Talbott believes CA has as much as 200 billion barrels of oil.
+      - More competent sources believes that its more like 17-33 billion barrels.
+    - Might not be worth the investment (Russian owned pipelines).
+
+### Russian Interest in CA
+- Russia originally tried to join with Europe but felt rejected and friendless.
+- Kremlin sought to re-establish Russia as center of CIS countries.
+- RUssian wants to include CA as theirs and exclude Westerners from the domain.
+
+## Central Asia in Western and Russian Geopolitcal Pictures of the World.
+- Two schools of though, the Western realist geopolitics and the Russian Eurasianism.
+  - Western thought analyzes CA's role in world politicas and provides details for Atlantic states
+  to pursue in the region.
+  - The Russian one believes Russia is a unique Eurasian power.
+
+### From the Heartland to the Grand Chessboard:
+- *Heartland* is the idea that the geopolitical world has three domains
+  - Pivot Area (Russia, CA, Mongolia, Iran, Western China)
+  - Inner Crescent (Germany, Austria, Turkey, India, China)
+  - Outer Crescent (Britain, South Africa, Australia, the USA, Canada, and Japan)
+  - Conflict lays between maritime and continental powers.
+  - Development of transportation for land locked areas allowed them to threaten maritime powers.
+    - British saw this as Russia threatening the "free world".
+- Dugin's *neo-Eurasianism* has 3 parts
+  - History and politics are characterized by the fight between continental and maritime
+   civilizations.
+  - Geographic determinism.
+  - Represents a utilitarian theory.
+  - Dugin proposes that policy divided into domestics recommendations and foreign recommendations.
+  - Anti-Western sentiments.
+  - Russia implements some of this by trying to cooperate with CIS countries due to shared
+  heritage.

@@ -7,7 +7,7 @@
 
 # Who are the Mongols?
 - Mongols make up 12% of the population in Inner Mongolia.
-- The Mongol language falls into the Altaic fmaily of languages.
+- The Mongol language falls into the Altaic family of languages.
 - Within the 3 groups are Mongolian, Turkic, and Manchu-Tungus.
 
 # Mongols and Tibetans
